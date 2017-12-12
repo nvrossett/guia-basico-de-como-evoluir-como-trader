@@ -36,7 +36,7 @@ Basicamente tudo que você precisa saber é que existem algumas técnicas/concei
 > É uma técnica que se dominada da muitos ganhos e poucas perdas
 
 
-Termo do Mercado
+Termos comuns do Mercado
 ----------
 
 ### Long / Short - Operar comprado e vendido e Pares ###

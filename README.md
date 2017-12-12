@@ -301,9 +301,8 @@ Alguns links de artigos que li de trade, se sua leitura for intermediária recom
 > ## **Série de 35 artigos da Learn to Trade The Market** ##
 > Está série é focada em Forex, mas é abarrotada de conteúdo de alta qualidade que você pode utilizar em qualquer mercado, são alguns dos melhores artigos que vi, um dos que mais gosto é:
 > 
-> **Trade Forex como um Sniper, não como uma Metralhadora**
+> **[Trade Forex como um Sniper, não como uma Metralhadora](http://www.learntotradethemarket.com/forex-articles/trading-forex-like-a-sniper-not-a-machine-gunner)**
 > 
-> http://www.learntotradethemarket.com/forex-articles/trading-forex-like-a-sniper-not-a-machine-gunner
 > 
 > Bem basicamente ele aborda que assim como um atirador de elite precisa considerar a distancia do tiro, trajetória da bala, queda da bala, velocidade do vento ou condições climáticas entre varias coisas, um trader de sucesso precisa saber esperar o mercado entrar em uma boa condição para entrar também.
 > 

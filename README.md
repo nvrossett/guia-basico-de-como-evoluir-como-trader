@@ -97,7 +97,7 @@ Termo do Mercado
 ### **Bitcoin e Criptomoedas** ###
 Os canais abaixo são de pessoas que trabalham com foco em bitcoin e criptomoedas
 
-> ![](https://yt3.ggpht.com/-Lyga-xhAwqg/AAAAAAAAAAI/AAAAAAAAAAA/NzW6hu2f1KI/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-Lyga-xhAwqg/AAAAAAAAAAI/AAAAAAAAAAA/NzW6hu2f1KI/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[ALESSANDRO DIAS](https://www.youtube.com/channel/UCjId-nDslP6E0KMmr-GoDuw])**  ####
 > ***( Analise Gráfica )*** 
 > 
@@ -122,7 +122,7 @@ Os canais abaixo são de pessoas que trabalham com foco em bitcoin e criptomoeda
 > https://www.youtube.com/user/diaspcf/playlists
 
 ************************
-> ![](https://yt3.ggpht.com/-53_rIBrRKjI/AAAAAAAAAAI/AAAAAAAAAAA/V7St9llbShE/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-53_rIBrRKjI/AAAAAAAAAAI/AAAAAAAAAAA/V7St9llbShE/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[CRIPTOMOEDA FÁCIL](https://www.youtube.com/channel/UCak-HWmXEqeC3KOjTN9Fr-Q)**  ####
 > ***( Analise Gráfica | Bitcoin e Criptomoedas )***
 > 
@@ -151,7 +151,7 @@ E no fim são os canais que mais estão me agregando conteúdo de qualidade.
 Algumas diferenças são operar na abertura e fechamento de mercado que não existe isso em criptomoedas, é 24 horas por dia... no caso de tape reading em criptomoedas já operamos em "tela cega", o que pra eles ainda não é uma realidade mas parece que será no futuro, basicamente hoje no mercado Brasileiro você consegue saber a movimentação dos "grandes players", exemplo, aparece junto do book que o Bradesco por exemplo está comprando dólares e tal, e você pode usar esses grandes investidores para saber o que pode estar acontecendo com o mercado, em criptomoedas ja não tem isso.
 
 
-> ![](https://yt3.ggpht.com/-5JERnF48o8E/AAAAAAAAAAI/AAAAAAAAAAA/JLRxQQ57qJ4/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-5JERnF48o8E/AAAAAAAAAAI/AAAAAAAAAAA/JLRxQQ57qJ4/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[ANDRÉ MORAIS](https://www.youtube.com/channel/UCqsq57uOHDfJzoAV_4JkOew)**  ####
 > ***( Analise Gráfica )***
 > 
@@ -169,7 +169,7 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
 
 ----------
 
-> ![](https://yt3.ggpht.com/-Irz6SkeqonY/AAAAAAAAAAI/AAAAAAAAAAA/uIWKex1XVUs/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-Irz6SkeqonY/AAAAAAAAAAI/AAAAAAAAAAA/uIWKex1XVUs/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[Mago Finance](https://www.youtube.com/user/TradeAoVivo)**  ####
 > ***( Analise Gráfica, foco em Scalping )*** 
 > 
@@ -197,7 +197,7 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
 
 
 ----------
-> ![](https://yt3.ggpht.com/-6EBfLJfPyqg/AAAAAAAAAAI/AAAAAAAAAAA/USJkgaOVq4g/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-6EBfLJfPyqg/AAAAAAAAAAI/AAAAAAAAAAA/USJkgaOVq4g/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[Ports Trader](https://www.youtube.com/channel/UCMzDqmbWhAnRr8-Va8ZsSNw)**  ####
 > ***( Analise Gráfica )*** 
 > 
@@ -209,7 +209,7 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
 > Os vídeos dele são mais curtos mas customam ser excelentes.
 
 ----------
-> ![](https://yt3.ggpht.com/-3nJqh27kHB4/AAAAAAAAAAI/AAAAAAAAAAA/GMoq5GJtIFk/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-3nJqh27kHB4/AAAAAAAAAAI/AAAAAAAAAAA/GMoq5GJtIFk/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[Scalper Trader](https://www.youtube.com/channel/UCjOodtnCpr2O2zmJWFxt75Q)**  ####
 > ***( Tape Reading )*** 
 > 
@@ -231,7 +231,7 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
  
 ----------
 
-> ![](https://yt3.ggpht.com/-tOxf0JN8IEg/AAAAAAAAAAI/AAAAAAAAAAA/yHqz7com17s/s288-c-k-no-mo-rj-c0xffffff/photo.jpg =80x80)
+> ![](https://yt3.ggpht.com/-tOxf0JN8IEg/AAAAAAAAAAI/AAAAAAAAAAA/yHqz7com17s/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[Vida de Trader (Atom S/A)](https://www.youtube.com/channel/UCTYqr2r-mPW4cQshVQXDJ3A)**  ####
 > ***( Tape Reading )*** 
 > 

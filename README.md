@@ -98,7 +98,7 @@ Termo do Mercado
 Os canais abaixo são de pessoas que trabalham com foco em bitcoin e criptomoedas
 
 > ![](https://yt3.ggpht.com/-Lyga-xhAwqg/AAAAAAAAAAI/AAAAAAAAAAA/NzW6hu2f1KI/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
-> #### **[ALESSANDRO DIAS](https://www.youtube.com/channel/UCjId-nDslP6E0KMmr-GoDuw])**  ####
+> #### **[ALESSANDRO DIAS](https://www.youtube.com/channel/UCjId-nDslP6E0KMmr-GoDuw)**  ####
 > ***( Analise Gráfica )*** 
 > 
 > 

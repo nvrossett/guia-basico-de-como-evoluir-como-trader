@@ -124,7 +124,7 @@ Os canais abaixo são de pessoas que trabalham com foco em bitcoin e criptomoeda
 ************************
 > ![](https://yt3.ggpht.com/-53_rIBrRKjI/AAAAAAAAAAI/AAAAAAAAAAA/V7St9llbShE/s288-c-k-no-mo-rj-c0xffffff/photo.jpg)
 > #### **[CRIPTOMOEDA FÁCIL](https://www.youtube.com/channel/UCak-HWmXEqeC3KOjTN9Fr-Q)**  ####
-> ***( Analise Gráfica | Bitcoin e Criptomoedas )***
+> ***( Analise Gráfica )***
 > 
 > 
 > Um excelente canal que de tempos em tempos posta análise gráficas de varias Criptomoedas que estão em evidência no mercado.
@@ -174,7 +174,7 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
 > ***( Analise Gráfica, foco em Scalping )*** 
 > 
 > 
-> Um dos conteúdos mais interessantes em termos de scalping, com ele aprendi a importante de se preocupar com Alinhamentos Fractais, que é basicamente você esperar que ao menos 3 tempos gráficos diferentes apontem o mesmo movimento, clique no vídeo abaixo de 59 segundos apenas para ver o alinhamento em ação.
+> Um dos conteúdos mais interessantes em termos de scalping, com ele aprendi a importância de se preocupar com Alinhamentos Fractais, que é basicamente você esperar que ao menos 3 tempos gráficos diferentes apontem o mesmo movimento, clique no vídeo abaixo de 59 segundos apenas para ver o alinhamento em ação.
 > [![Alinhamento de Fractais](http://img.youtube.com/vi/qrrB6Kt6MYU/0.jpg)](http://www.youtube.com/watch?v=qrrB6Kt6MYU)
 > 
 > Ele aborda isso em vários vídeos, mas tem muitos vídeos longos e de qualidade.

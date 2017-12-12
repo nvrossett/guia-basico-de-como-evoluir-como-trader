@@ -185,6 +185,9 @@ Algumas diferenças são operar na abertura e fechamento de mercado que não exi
 > 
 > 
 > Um dos conteúdos mais interessantes em termos de scalping, com ele aprendi a importância de se preocupar com Alinhamentos Fractais, que é basicamente você esperar que ao menos 3 tempos gráficos diferentes apontem o mesmo movimento, clique no vídeo abaixo de 59 segundos apenas para ver o alinhamento em ação.
+>
+>Nessa operação ele vê que o preço vai cair e entra vendido, a direita em verde você vê o lucro dele aumentando nessa única operação a medida que o preço cai.
+>
 > [![Alinhamento de Fractais](http://img.youtube.com/vi/qrrB6Kt6MYU/0.jpg)](http://www.youtube.com/watch?v=qrrB6Kt6MYU)
 > 
 > Ele aborda isso em vários vídeos além de outras técnicas, tem muitos vídeos longos e de qualidade.
